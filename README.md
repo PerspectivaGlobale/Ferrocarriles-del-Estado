@@ -1,1 +1,2 @@
 # Ferrocarriles-del-Estado
+La práctica del industrialismo de Estado acaba de tener entre nosotros una autorizada consagración en el mensaje remitido a la Asamblea General por el Consejo Nacional de Administración y por el cual se proyecta el establecimiento de un fondo permanente para la construcción de ferrocarriles en el país y se pide que se autorice al Poder Ejecutivo para ejecutar una vía férrea entre la ciudad de Florida y el pueblo de Sarandí del Yí.
